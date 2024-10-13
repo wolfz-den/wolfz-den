@@ -1,7 +1,7 @@
 ***
 ![Image description](https://64.media.tumblr.com/8493b8589f892090b8a9eebb320518fc/782b2eeab440195d-a8/s100x200/c24db546252acc753ce92937537a32566bd1a7e3.gifv)![Image description](https://64.media.tumblr.com/338817f51c4a865955b652fbfe499987/782b2eeab440195d-20/s100x200/32be32e9bca553069a614f38080400fc3c2c58a7.gifv)![Image description](https://64.media.tumblr.com/f3dd4a131dd43ac3a294fc1db19a5acc/782b2eeab440195d-f5/s100x200/e76bd1a5784c7b7f1d2cb94da2568dfef8fee374.gifv)
 
-*★﹕@wolfz.den 🎸*
+*★﹕@wolfz.den 🎸 ★*
 
 *20﹒he/they/it﹒intj*
 
